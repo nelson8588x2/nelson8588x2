@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @nelson8588x2
-- 👀 I’m interested in design, technology.
+- 👀 I’m interested in design, technology, new cool things.
 - 🌱 I’m currently learning ML/DL/AI.
 - 💞️ I’m looking to collaborate on 
 - 📫 How to reach me by email.
