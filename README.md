@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on 
 - 📫 How to reach me by email.
 - 😄 Pronouns: he／him／his
-- ⚡ Fun fact: I am a band rapper.
+- ⚡ Fun fact: I am a rapper.
 
 <!---
 nelson8588x2/nelson8588x2 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
